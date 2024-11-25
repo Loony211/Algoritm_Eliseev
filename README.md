@@ -6,4 +6,4 @@ https://drive.google.com/drive/folders/1KQCR0-aPK_FP8XVTbpYnpEWfyIPGP0vX?usp=sha
 
 
 новелла
-https://drive.google.com/drive/folders/1r5KKXfh3mq_bHh2KrkAC3l-aIzP12OIa?usp=sharing
+https://drive.google.com/file/d/19IPFqfX3vW0hibCS6-KGA182grdUntCd/view?usp=drive_link
