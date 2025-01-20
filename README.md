@@ -10,3 +10,4 @@ https://drive.google.com/drive/folders/1r5KKXfh3mq_bHh2KrkAC3l-aIzP12OIa?usp=dri
 
 ---
 ССЫЛКА НА ГУГЛ ДОКС(СВАТ,РОБУКСЫ...)
+https://docs.google.com/document/d/1AMxFAdFn73O3antWuXB2w1To25ft3j19-hwMTU7aTuE/edit?usp=sharing
