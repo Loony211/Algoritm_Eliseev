@@ -7,3 +7,6 @@ https://drive.google.com/drive/folders/1KQCR0-aPK_FP8XVTbpYnpEWfyIPGP0vX?usp=sha
 
 новелла
 https://drive.google.com/drive/folders/1r5KKXfh3mq_bHh2KrkAC3l-aIzP12OIa?usp=drive_link
+
+---
+ССЫЛКА НА ГУГЛ ДОКС(СВАТ,РОБУКСЫ...)
